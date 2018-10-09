@@ -1,1 +1,1 @@
-lol kek
+https://bespoyasov.ru/ttt-tdd/
